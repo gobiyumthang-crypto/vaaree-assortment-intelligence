@@ -1,1 +1,0 @@
-# vaaree-assortment-intelligence
